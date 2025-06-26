@@ -1,7 +1,7 @@
 ## qr-code-lotusa
 
 
-# Nguyễn Thị Quỳnh Trang - Chang chói chang
+# Nguyễn Thị Quỳnh Trang - Chang m8
 ![signal-2025-05-28-110307](https://github.com/user-attachments/assets/0cfc890e-6c78-4319-850b-c0d775198e11)
 
 
