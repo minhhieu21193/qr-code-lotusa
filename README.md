@@ -17,3 +17,8 @@
 # An Nhật Quang - Quang Giáo Sư
 
 ![IMG_0432](https://github.com/user-attachments/assets/da17ed5d-2670-46e9-8300-8ab9f76f1023)
+
+# Bùi Quang Kiên - Kiên PC
+
+![signal-2025-08-12-130215](https://github.com/user-attachments/assets/6b6c441b-79d1-45b2-a554-fd339d0812f6)
+
